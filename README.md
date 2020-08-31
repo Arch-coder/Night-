@@ -10,3 +10,4 @@ and I kinda like having friends too so I will not be alonneeeee:):):):):)):)
 and most of all, I love coding!
 I know a few languages, I mean like computer languages and I enjoy doing it!
 any of you like these hobbies, just say it in you status profile:)
+AND I AM VERY GAY
